@@ -9,3 +9,5 @@ iremos aprender muitas coisas, nossos amigos são legais e iremos superar todos 
 obstaculos
 acreditando em nossos objetivos!
 
+jesus nos abençoe, que nos salve e ajude em tudo que precisarmos!
+
