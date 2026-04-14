@@ -3,4 +3,9 @@ A equipe 02 busca aprender sobre a programação de jogos juntos, evoluindo lado
 
 Membros da nossa equipe: Matheus, Guilherme, Iuri, e Valkyria
 
-Pão com batata
+Pão com batata É bom
+
+iremos aprender muitas coisas, nossos amigos são legais e iremos superar todos os 
+obstaculos
+acreditando em nossos objetivos!
+
