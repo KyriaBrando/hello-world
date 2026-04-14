@@ -6,8 +6,7 @@ Membros da nossa equipe: Matheus, Guilherme, Iuri, e Valkyria
 Pão com batata É bom
 
 iremos aprender muitas coisas, nossos amigos são legais e iremos superar todos os 
-obstaculos
-acreditando em nossos objetivos!
+obstaculos acreditando em nossos objetivos!
 
-jesus nos abençoe, que nos salve e ajude em tudo que precisarmos!
+Jesus nos abençoe, que nos salve e ajude em tudo que precisarmos!
 
